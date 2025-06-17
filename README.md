@@ -5,7 +5,7 @@ Welcome to the official resources repository for **SKS Academy**, where learning
 
 We offer high-quality, career-focused courses in digital marketing, language learning, legal training, and more — designed to help professionals and students gain real-world skills and stay ahead in today’s competitive landscape.
 
-👉 Visit our official website for full course details and enrollment: [SKS Academy](https://sksacademy.com/)
+👉 Visit our official website for full course details and enrollment: [THE BEST ENGLISH LANGUAGE INSTITUTE IN ABU DHABI](https://sksacademy.com/)
 
 ## 📚 What You'll Find Here
 - Sample course outlines
